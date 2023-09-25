@@ -1,0 +1,1 @@
+<img width="1108" alt="Screen Shot 2023-09-24 at 6 17 16 PM" src="https://github.com/M8MBA/mag-zine/assets/97080366/dad5abd4-d201-475a-ada6-9db1c6c7670f">
